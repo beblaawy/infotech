@@ -1,3 +1,3 @@
 # infotech
 
-![Info Tech preview](https://imgur.com/a/4S87bGU)
+![Info Tech preview](https://imgur.com/download/v4958Ha)
